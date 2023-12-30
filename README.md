@@ -1,2 +1,3 @@
-# zouk-reflections
-Reflections on Brazilian Zouk dancing
+# Zouk Meditations
+
+Take your time and meditate. Zooouuuk
