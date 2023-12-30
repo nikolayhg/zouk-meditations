@@ -30,3 +30,15 @@ Two Zouk dancers meet.
 \- Everything exists in perfect meaning and purpose in its total interconnectedness.
 
 \- Zooouuuk!
+
+---
+
+Two Zouk dancers meet ...
+
+They melt into each other ...
+
+Then through each other ...
+
+and finally emerge in different forms of being.
+
+---
