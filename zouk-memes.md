@@ -23,14 +23,6 @@ Two dancers meet:
 
 Two dancers meet:
 
-\- I just wanna dance
-
-\- Zooouuuk
-
----
-
-Two dancers meet:
-
 \- How was your day?
 
 \- Zooouuuk
