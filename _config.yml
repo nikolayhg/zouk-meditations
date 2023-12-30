@@ -1,5 +1,5 @@
 ---
-title: Zouk Reflections
+title: Zouk Meditations
 timezone: UTC
 collections:
   posts:
@@ -21,7 +21,7 @@ defaults:
   values:
     layout: page
 description: Brazilian Zouk
-github_repo: zouk-reflections
+github_repo: zouk-meditations
 github_username: nikolayhg
 theme_color: light
 remote_theme: broccolini/athena
