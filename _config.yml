@@ -20,7 +20,7 @@ defaults:
     type: pages
   values:
     layout: page
-description: Brazilian Zouk
+description: Brazilian Zouk Meditations
 github_repo: zouk-meditations
 github_username: nikolayhg
 theme_color: light
