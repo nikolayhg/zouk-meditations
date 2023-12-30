@@ -49,3 +49,18 @@ Two Zouk dancers meet.
 
 \- Zooouuuk
 
+---
+
+A non-Zouk dancer meets a Zouk dancer.
+
+\- How was your morning?
+
+\- Quite zouky!
+
+\- Oh, great! What did you do?
+
+\- I was relaxing my whole body in my bed. As I got out of the bed I felt the way my feet step on the ground, all the points of contact and their constant changes and playfulness. And while smilingly breathing in, I slowly stretched the muscles from the feet upwards, the lower leg muscles, then upper leg, hip muscles, core expanding into chest opening up, stretching further the muscles of the shoulders, elbow, forearm, wrist and finally hand muscles, projecting out my fingers as though my body is an ever expanding universe ... And then with a deep breathing out, relaxing all muscles into silence ... With the next breath in, I followed what my body wanted to do, and so with the next breath out. Then I observed how I was going to the bathroom, how my hand touched the door handle, how I turned on the water, how my hands felt while the water was flowing through them, how the water moved while I was rotating my hands. I was reflecting about general patterns of connectivity of the body with other objects and people, patterns in verbal and non-verbal communication, patterns in speed and quality of movements.
+
+\- Is this zouky? What has this to do with Zouk?
+
+\- Everything 🙂
