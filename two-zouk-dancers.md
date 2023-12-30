@@ -64,3 +64,29 @@ A non-Zouk dancer meets a Zouk dancer.
 \- Is this zouky? What has this to do with Zouk?
 
 \- Everything 🙂
+
+---
+
+Two Zouk dancers meet.
+
+\- I am thinking too much while dancing. I want to think less.
+
+\- As you think so you dance.
+
+\- What do you mean?
+
+\- What is the root of dancing?
+
+\- The body?
+
+\- Yes, it is the movement of the body. And what is the root of thinking?
+
+\- I don't know. What is it?
+
+\- Every thought originates from silence as a force moving out of silence into movement. This movement is transformed into sound and later is expressed and perceived in language patterns. Thus the root of a thought is a movement.
+
+\- You mean movement is the root of thinking and dancing?
+
+\- Yes. In their essence dancing and thinking are the same. They are movement. Thus as you think so you dance. As you dance so you think.
+
+\- Zooouuuk
