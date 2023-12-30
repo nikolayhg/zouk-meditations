@@ -42,3 +42,10 @@ Then through each other ...
 and finally emerge in different forms of being.
 
 ---
+
+Two Zouk dancers meet.
+
+\- Whatever you seek to dance and connect to, you can experience it. What you most deeply seek and cannot lose, is you.
+
+\- Zooouuuk
+
