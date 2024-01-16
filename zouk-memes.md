@@ -42,3 +42,9 @@ Two dancers meet.
 \- Dance, eat, sleep.
 
 \- Zooouuuk!
+
+---
+
+Zouk leaders mantra:
+
+I will followy follow the follow of the follower while following the follower.
